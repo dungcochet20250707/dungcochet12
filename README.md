@@ -19,4 +19,4 @@
 
 选择一个真正用心做内容的平台，比什么都重要。在这里，你无需翻页找资源，无需担心广告跳转，只需打开网站，点开封面，即可享受稳定、流畅、免费的日本AV观看体验。
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/dungcochet20250707/dungcochet12 ）</span>
